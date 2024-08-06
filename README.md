@@ -12,4 +12,4 @@ Meu nome é Lucas Barbosa Domingues e eu tenho 15 anos...
 
 
 
-![](https://media1.tenor.com/m/86LbxPr4JT4AAAAC/teen-wolf.gif)
+![](https://media1.tenor.com/m/otxKxauZU-IAAAAd/stydia.gif)
